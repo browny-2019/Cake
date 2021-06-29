@@ -1,0 +1,4 @@
+for making this recipe
+take a bowl, add 2 cups wheat flour , 1 and a half cup powdered sugar, 1 spoon of baking powder ,  half spoon of baking soda and few drops of vanilla extract. pass all the dry ingredients through a sieve. mix all the dry ingredients. then add a few spoons of clarified butter and mix it. then add milk until a smooth batter is formed.
+then take a cake tin and apply clarified butter on it and sprinkle flour so that the cake comes out easily.
+then pour the batter into the cake tin and and add the tutti fruity and dry fruits on top and bake it in the oven for about and hour. after cake is finished baking take it out of the cake tin and let it cool. take some chocolate in bowl with clarified butter. melt it and pour it over the cake. put the cake in the refrigerator and the cake is ready.
